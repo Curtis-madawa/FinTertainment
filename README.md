@@ -1,3 +1,4 @@
+![0f03e5cf-498c-4e93-9caa-ec0243a0c539](https://github.com/Curtis-madawa/FinTertainment/assets/123270149/45af7bcd-0293-4b6e-88f1-389277f513df)
 # FinTertainment - 
 
 
